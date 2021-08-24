@@ -1,2 +1,2 @@
 # Privacy-Policy
-Privacy Policy of Fuzzle (App, iOS)
+Privacy Policy of Lustige Witze
